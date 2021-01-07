@@ -10,4 +10,4 @@ Instead of talking,instead of so much useless chatter,if i saw you in such a sta
 
 I'd leaf through the pages,saying the quote i was looking for didn't need any context,but then i'd probably also say that,in the book,the author tells how he had dreamed from boyhood of finding the nearly-exterminated Bushmen,and how he came to commit to organzing his expedition into the Kalahari desert of what is now Botswana.I'd tell you it's a spiritual quest for him and would thumb through the pages and read the following passage to you:
 
-In fact all the aspects of the plan that were within reach of my own hand were worled out and determined there and then.What took longer,of course ,was the part which depended on the decisions of others and on circukstances beyond my own control.
+In fact all the aspects of the plan that were within reach of my own hand were worled out and determined there and then.What took longer,of course ,was the part which depended on the decisions of others and on circukstances beyond my own control.Yet even there i was amazed at the speed with which it was accomplished.
