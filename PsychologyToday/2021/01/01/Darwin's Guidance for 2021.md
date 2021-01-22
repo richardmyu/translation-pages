@@ -6,7 +6,7 @@ Sure, 2020 was a mess. And as i type on the first morning of 2021, as far as i c
 
 For humans, as is true for members of any apecies, life has always been a struggle. Sometimes it's just worse than it is at others.
 
-In our recent work in a field that we are calling [*positive evolutionary psychology*](https://www.amazon.com/Positive-Evolutionary-Psychology-Darwins-Living-ebook/dp/B07WC3NSHM/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=1555656027&sr=8-17) , Nicole Wedberg and i use foundational principles of the evolutionary behavioral sciences to spell out what five suggestions for living that follow from this broader idea of positive evolutionary psychology. I hope you find them helpful as you and yours navigate the often treacherous waters of life.
+In our recent work in a field that we are calling *positive evolutionary psychology*, Nicole Wedberg and i use foundational principles of the evolutionary behavioral sciences to spell out what five suggestions for living that follow from this broader idea of positive evolutionary psychology. I hope you find them helpful as you and yours navigate the often treacherous waters of life.
 
 ### 1. Be honest
 
@@ -24,17 +24,17 @@ Given this fact, we've evolved a broad array of moral and emotional processes th
 
 ### 4. Forgive
 
-Along with making amends with others for mistakes that we have made as we're navigating through life, we've evolved a psychology that pertains to forgiving others who've slighted us, in some form or another, as well(see Geher at al., 2019). While [forgiveness](https://www.psychologytoday.com/intl/basics/forgiveness) may not always be possible(see De jesus, 2020), genuine forgiveness often has both proximal benefits(making the forgiver feel better about things) as well as ultimate benefits(keeping close relationships intact as we engage in our life journeys).
+Along with making amends with others for mistakes that we have made as we're navigating through life, we've evolved a psychology that pertains to forgiving others who've slighted us, in some form or another, as well(see Geher at al., 2019). While forgiveness may not always be possible(see De jesus, 2020), genuine forgiveness often has both proximal benefits(making the forgiver feel better about things) as well as ultimate benefits(keeping close relationships intact as we engage in our life journeys).
 
 ### 5. Love
 
-Without question, love is a real thing, with well-documented [neural](psychologytoday.com/intl/basics/neuroscience) correlates(see Acevedo et al., 2019). The experience of love is perhaps the ultimate in our evolved psychology for staying close to others and to securing support through life. In a truly loving relationship, one becomes so enamored with another that fulfilling a loved one's needs and wants becomes a primary goal for oneself. When people experience true love with another, they have someone in their corner in a very foundational sense. The power of love(to cite Huey Lewis!) cannot be understated in its ability to provide all kinds of benefits in life. In 2021, let yourself love and be loved. It's in our evolutionary history to do so. For good reasons.
+Without question, love is a real thing, with well-documented neural correlates(see Acevedo et al., 2019). The experience of love is perhaps the ultimate in our evolved psychology for staying close to others and to securing support through life. In a truly loving relationship, one becomes so enamored with another that fulfilling a loved one's needs and wants becomes a primary goal for oneself. When people experience true love with another, they have someone in their corner in a very foundational sense. The power of love(to cite Huey Lewis!) cannot be understated in its ability to provide all kinds of benefits in life. In 2021, let yourself love and be loved. It's in our evolutionary history to do so. For good reasons.
 
 ### Bottom Line
 
 The more you live, the more you come to find that life can be hard as nails. 2020 gave everyone, all eight billion of us, a powerful lesson in this fact.
 
-But life experience also teaches us about the silver linings appear along the way. Ans so many of the good things in life, such as the ability to make amends and the capacity for true love, are deeply embedded in our evolutionary history. This is the entire point of the field of [Positive Evolutionary Psychology](https://www.amazon.com/Positive-Evolutionary-Psychology-Darwins-Living-ebook/dp/B07WC3NSHM/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=1555656027&sr=8-17), and i think it's a wonderful way to understand and appreciate the human experience.
+But life experience also teaches us about the silver linings appear along the way. Ans so many of the good things in life, such as the ability to make amends and the capacity for true love, are deeply embedded in our evolutionary history. This is the entire point of the field of *Positive Evolutionary Psychology*, and i think it's a wonderful way to understand and appreciate the human experience.
 
 At the end of the day: Be hones. Don't expect perfection.Make amends when appropriate. Fotgive when appropriate. And allow yourself the capacity to love. You and those around you will be better off for all of it.
 
