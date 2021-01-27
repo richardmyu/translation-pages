@@ -10,4 +10,12 @@ Philae, the landing module that Rosetta had brought along, made its careful desc
 
 After the mishap, scientists assessed that the immediate non-optimal position of the lander may have an eventual upside-as the comet neared the sun, the lander would find itself again exposed to beams of sunlight necessary to charge itself yet remain shielded enough from its heat to further its mission closer to the sun than planned.
 
+Similarly, as therapists gain preliminary images and positioning during early stages of exploration, we must be skilled in partnering to navigate obstacles and exploit setbacks as we traverse through pummeling, disorienting space dust in order for clients to gain an awesome, sometimes catalyzing, perspective of large processes governing their lives.
+
+Zig Ziglar said: "When you aim at nothing, you'll hit it every time." Without goals, clients may enjoy the therapeutic experience, yet it is difficult to say whether success has been achieved in therapy with no consolidated agenda. Watzlawick, Weakland, and Fisch (1974) offered, "Change can be implemented effectively by focusing on minimal, concrete goals, going slowly, and proceeding step by step, rather than strongly promoting vast and vague targets with whose desirability nobody would take issue, but whose attainability is a different question altogether"(p. 159).
+
+Goals should be clear enough to assess whether or not the client got what they needed. Established goals help you know whether you're moving in the right direction or stuck; otherwise, yuo get therapeutic drift.
+
+Inexperienced therapists sometimes confuse treatment goals with treatment focus in the here-and-now. Psychotherapy is not a hard science, and psychotherapy is not a hard science, and psychotherapists work as catalysts with complex, multi-systemic, circular forces well beyond the bounds of anyone's control. Over the longer haul, therapeutic work needs targets; in the immediate-term, it needs aerodynamic force, so to speak, to help move toward them.
+
 [link](https://www.psychologytoday.com/intl/blog/progress-notes/202101/analysis-paralysis-vs-therapy-mission)
