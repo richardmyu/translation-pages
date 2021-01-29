@@ -12,5 +12,4 @@ Minority stress theory suggests that stigmatized minority groups (such as bisexu
 
 
 
-
 [link](https://www.psychologytoday.com/intl/blog/the-power-pleasure/202101/am-i-enough-my-bisexual-partner)
