@@ -16,6 +16,4 @@ According to Beck, it's not a lack of commitment or willpower that usually leads
 
 
 
-
-
 [link](https://www.psychologytoday.com/intl/blog/supersurvivors/202101/so-you-set-new-year-s-resolution-now-what)
