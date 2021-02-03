@@ -10,6 +10,14 @@ It's something that doesn't surprise psychologist Judith Beck, president of the 
 
 According to Beck, it's not a lack of commitment or willpower that usually leads people to give up on their resolutions. Instead, we tend to fall into traps in the way we think about our goals. Here are four comnon traps and how to avoid them.
 
+### Trap #1: We set resolution that overwhelm us
+
+### Trap #2: We don't anticipate obstacles
+
+### Trap #3: We engage in all-or-nothing thinking
+
+### Trap #4: When we get off track, we beat ourselves up
+
 
 
 
