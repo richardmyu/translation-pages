@@ -12,6 +12,10 @@ According to Beck, it's not a lack of commitment or willpower that usually leads
 
 ### Trap #1: We set resolution that overwhelm us
 
+Given that we've waited all year to set our resolutions, we often aim too high. When goals are unrealistic, they can undermine motivation. Although research shows that the most energizing goals are ones that seem difficult, it's also important that people believe they are actually possible to accomplish.
+
+According to Beck, we don't need to stop setting big goals, we just have to think about them differently. "Let's say you have a goal of moving across the country," she speculates. "What is the first step you would need to take or what decision would you need to make? Maybe i live in Philadelphia now and i want to move to California. And i don't know which city i want to live in. So, how am i going to get that information?"
+
 ### Trap #2: We don't anticipate obstacles
 
 ### Trap #3: We engage in all-or-nothing thinking
