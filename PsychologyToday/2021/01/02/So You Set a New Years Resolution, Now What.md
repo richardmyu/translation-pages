@@ -52,5 +52,4 @@ New Year's resolutions aren't about being perfect. They're about committing to s
 
 Here's hoping your resolutions for 2021 do just that.
 
-
 [link](https://www.psychologytoday.com/intl/blog/supersurvivors/202101/so-you-set-new-year-s-resolution-now-what)
