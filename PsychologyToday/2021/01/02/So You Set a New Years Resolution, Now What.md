@@ -2,6 +2,8 @@
 
 ###### Four traps that stop our resolutions in their tracks and how to avoid them.
 
+> [link](https://www.psychologytoday.com/intl/blog/supersurvivors/202101/so-you-set-new-year-s-resolution-now-what)
+
 If you're like most people, you were happy to see 2020 draw to a close. Given how painful the past several months have been, most of us are yearning for a better 2021. Besides hoping for a better world and a swift end to the COVID pandemic, many of us may also be considering more personal changes we'd like to make in our lives.
 
 According to a recent survey of people living in the Unite States, roughly 74 percent of us will set a New Year's resolution this year. Perhaps not surprisingly, topping the charts are exercising more eating healthier. Also in the top ten are spending more time with friends and family, spending less time on social media, and quitting smoking. Although most people initially think they'll succeed, research shows something we all suspect: Most of us give up. In fact, according to research using the Strava app to track over 98 million fitness goals and activities inputted by users, the fateful day when people tend to give up on their goals is January 19.
@@ -51,5 +53,3 @@ It's a profound truth, even if it is cliched: Nobody is perfect. Whatever New Ye
 New Year's resolutions aren't about being perfect. They're about committing to something we care about——something that might enhance our lives, bring us a little happiness, or otherwise improve our little corner of the world.
 
 Here's hoping your resolutions for 2021 do just that.
-
-[link](https://www.psychologytoday.com/intl/blog/supersurvivors/202101/so-you-set-new-year-s-resolution-now-what)

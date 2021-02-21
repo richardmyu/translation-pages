@@ -2,6 +2,8 @@
 
 ###### The mind-body dance of our sexual response is delicate and often bewildering.
 
+> [link](https://www.psychologytoday.com/intl/blog/insight-therapy/202101/sexual-arousal-is-not-reliable-sign-sexual-desire)
+
 Good sex is sex that is desired. It may thus seem intuitive that sexual arousal and orgasm will be facilitated by high mutual desire and thwarted by fear, confusion, and coercion. Yet thingd are not that simple.
 
 In human sexual arousal, psychology and psysiological processes interact in complicated ways. When both work in concert-our bodies are aroused and our hearts desirous-we can have a fulfilling sexual experience. But our bodires do not always abide by the pleadings of the heart. Sometimes the spirit is willing but the flesh is weal. Men with erectile dysfunction and women with vaginismus, for example, may desperately desire sex with their lovers, yet their physiologies refuse to cooperate.
@@ -41,6 +43,3 @@ Sexual arousal is not a reliable sign of sexual desire, and neither, it turns ou
 Moreover, sexual assault need not involve physical violence or even fear arousal. Some people are assaulted while intoxcated or drugged; some victims are mentally handicapped or children-unable to comprehend fully what is happening or place the event within the framework of "consent", or even "sex" for that matter. These sexual encounters include the possibility of physiological arousal and non-resistant behavior, but nonce can be said to involve true consent, willingness, or a desire for sex.
 
 In conslusion, physiological sexual arousal does not necessarily signal desire or consent for sex, and should not override a person's subjective experience in determining the course and meaning of a sexual encounter.
-
-
-[link](https://www.psychologytoday.com/intl/blog/insight-therapy/202101/sexual-arousal-is-not-reliable-sign-sexual-desire)

@@ -2,6 +2,8 @@
 
 ###### 5 evolution-infused suggestions for living the good life in 2021
 
+[link](https://www.psychologytoday.com/intl/blog/darwins-subterranean-world/202101/darwins-guidance-2021)
+
 Sure, 2020 was a mess. And as i type on the first morning of 2021, as far as i can tell, the COVID pandemic still rages, the world political situation is still a mess, and i'm still driving a 2004 Nissan Sentra. The ball droppong in Times Square last night didn't erase all of these facts as so many of us had hoped.
 
 For humans, as is true for members of any apecies, life has always been a struggle. Sometimes it's just worse than it is at others.
@@ -39,7 +41,3 @@ But life experience also teaches us about the silver linings appear along the wa
 At the end of the day: Be hones. Don't expect perfection.Make amends when appropriate. Fotgive when appropriate. And allow yourself the capacity to love. You and those around you will be better off for all of it.
 
 Happy New Year from Darwin's Subterranean World. Thanks for all the support from my reasers over all these years--it truly means a ton to me.
-
-
-
-[link](https://www.psychologytoday.com/intl/blog/darwins-subterranean-world/202101/darwins-guidance-2021)

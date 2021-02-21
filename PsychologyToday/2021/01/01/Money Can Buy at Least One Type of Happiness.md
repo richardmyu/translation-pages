@@ -2,6 +2,8 @@
 
 ###### Research offers a new take on the question of whether money can buy happoness.
 
+> [link](https://www.psychologytoday.com/intl/blog/social-instincts/202101/money-can-buy-least-one-type-happiness)
+
 The relationship between money and happiness is complicated, to say the least. Some research has found that higher income is related to people's overall life satisfaction but not to moment-to-moment happiness. Other research has found that wealth explains a minuscule(less than 1 percent) amount of the variation in people's happiness. Other research suggests the relationships between money and happiness is much stronger.
 
 New research forthcoming in the journal *Social Psychology and Personality Science* suggests that money can buy at least one type of happiness-something psychologists refer to as "happiness frequency".
@@ -21,17 +23,3 @@ They again found evidence linking income to happiness frequency but not intensit
 The scientists conclude, "Taken together, income may bring about happiness not through more intensely happy experiences, but through a greater number of them."
 
 Whether or not money can buy other forms of happiness is still an open question.
-
-
-
-
-
-
-
-
-
-
-
-
-
-[link](https://www.psychologytoday.com/intl/blog/social-instincts/202101/money-can-buy-least-one-type-happiness)
