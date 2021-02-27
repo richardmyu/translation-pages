@@ -21,3 +21,8 @@ In a 2012 *New York Times* article, "Awake or Knocked Out? The Line Gets Blurrie
 In this NYT piece, Gorman references a Science paper (Alkire, Hudetz, & Tononi, 2008) in which the authors write, "When we are anesthetized, we expect consciousness to vanish. But does it always? Although anesthesia undoubtedly induces unresponsivenes and amnesia, the extent to which it causes unconsciousness is harder to establish."
 
 Gorman also cites a study - led by Harry Scheinen and Jaakkl Langsjo of Finland's University of Turku and published in *The Journal of Neuroscience* -- which found that when someone "returns from oblivion" after receiving an anesthetic agent, the emergence of consciousness is "associated with the activation of a core network involving subcortical and limbic regions that become functionally coupled with parts of frontal and inferior parietal cortices upon awakening from unconsciousness."
+
+Now, almost a decade later, a new PET scan study, "Foundations of Human Consciousness: Imageing the Twilight Zone," from the University of Turku led by Harry Scheinen gives us more state-of-the-art insights related to "what happens in the brain when conscious awareness of the surrounding world fades." These findingd(Scheinin et al., 2020) were published on December 28 in the *Journal of Neuroscience*.
+
+
+
