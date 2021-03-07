@@ -57,3 +57,27 @@ Oliver Burkeman spoke about this phenomenon in a recent article for The Guardian
 This constant strain is similar to the concept of the "hedonic treadmill", a feature of our consumer behavior. We feel certain we'll finally be happy once we meet our consumer goals. Whether it's getting the newest car, the newest iPhone, or our millionth follower on Twitter, we feel convinced that once we get this, we'll finally feel content.
 
 But just like marathon finish times, achieving them feels good for the time being. But once we reach them, we're left in the same place: looking for the next goal to strive for.
+
+**The Psychology Of The Overjustification Effect**
+
+In a world, extrinsic rewards are fleeting. They're great in the short term, but they tend to dissipate long-term. But the downsides of extrinsic rewards don't end there: they can also have a negative impact on our intrinsic drive.
+
+This can be seen, for example, in children's art. Most kids simply love to draw. Leave a child with a stck of blank papers and a coloring set, and they're all set. Some will draw for hours on end, without interruption and without any need for prodding. Like Darger, their motivation is completely intrinsic; they do it simply because they enjoy it.
+
+How can you get a child to stop drawing? Tell them you'll give them a dollar for every picture they make.
+
+That's right. The most efficient way to stop this bahavior is to give them an extrinsic reward. There's a slight uptick when the money is first given, but it's all downhill from there. As the dollars start to accumulate, their drive steadily declines. And before long, the child loses interest in the activity altogether.
+
+This is known as the overjustification effect: if a child is already intrinsically motivated to do something, and then you layer on an extrinsic reward for it, the bahavior decreases. Studies have found this not only with children's drawing, but with music, dance, and sports as well.
+
+The same is often true for adults. Think of the classic Jerry Maguire storyline: a young athlete who plays and competes for the love of the game (intrinsically motiveted). When they go pro and finally get paid to play (extrinsically motivated), their drive to play goes down. Or artists who were originally driven by their own curiosity, only to become jaded when they're rewarded for their art with fame and fortune.
+
+**Final Thoughts on Intrinsic Rewards and The Psychology of Motivation**
+
+All in all, extrinsic rewards can drive behavior, especially in the short term. But whether in art, sports or life, if that behavior is already intrinsically motivated, adding in a reward can have the opposite effect on it. Extrinsic motivation is a fickle thing.
+
+In contrast, intrinsic motivation is like an endless wellspring. It drives behavior from within. We engage in the behavior because of a love for it itself, irrespective of its instrumental value. In that sense, the behavior becomes integrated with our identity.
+
+Compared to extrinsic rewards, the difficulty lies in our inability to directly give someone an intrinsic drive. It's much easier to program external rewards into a running app then it is to program in a genuine love of running. Intrinsic motivation is rarer and more difficult to harness.
+
+In the running world, these are people who simply love to run; running for running's sake. Ans in the art world, these are people like Henry Darger: the rare ones who simply create for the sake of creation.
