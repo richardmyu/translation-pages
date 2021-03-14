@@ -8,5 +8,10 @@ During Josef Stalin's "Great Break," the Soviet approach to autism, and disabili
 
 Before this pruge, however, the Soviets cultivated a form of child development which focused on potential more than the Western idea of actual, present signs of development. In Andrew Sutton's (no relation to me) article 'Backward Children of the USSR', he enthusiastically recounts the ideas of Soviet psychologist and paedologist Lev Vygotsky, one of the most prominent figures of child developmental psychology in Russia during the early days of its socialist experiment, and a pioneering voice in the education of disbled children in particular.
 
+Vygotsky's ideas embody many of the positive sides of socialism, advocationg a caring, paternal form of development which Sutton sees as a far-cry from the academic competitiveness of the West. 'The psychology founded by Vygotsky maintains that to teach a child at the level determined by the use of intelligence tests.(i.e. at his level of actual or opresent development) does nothing to accelerate the process of his actual development, but rather impedes it, by reinforcing his present level and failing to improve him with new tools of mental production,' says Sutton. 'In contrast to this, the zone of next development provides an indication of the upper limits of the child's teachability (obuchaemost) and permits teaching to be regulated to create maximal growth and development.' This approach is extremely beneficial for children with disabilities, particularly autism, showing a degress of patience unique to a nurturing cuulture which looks after its people.
+
 While Vygotsky propounded his educational theories, Soviet child psychologist Grunya Sukhareve was coming up with a set of theories surrounding schizophrenia that eventually let to some of the earliest diagnoses of autism(diagnoses that precede figures such as Hans Asperger).
+
+Much of Sukhareva's research took place at the Psycho-Neurological and Pedagogical Sanatorium School of the Indtitute of Physical Training and Medical Paedology in Moscow, a sanatorium for children with issues such as trauma and schizophrenia.
+
 
