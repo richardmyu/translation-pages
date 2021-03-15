@@ -12,6 +12,8 @@ Vygotsky's ideas embody many of the positive sides of socialism, advocationg a c
 
 While Vygotsky propounded his educational theories, Soviet child psychologist Grunya Sukhareve was coming up with a set of theories surrounding schizophrenia that eventually let to some of the earliest diagnoses of autism(diagnoses that precede figures such as Hans Asperger).
 
-Much of Sukhareva's research took place at the Psycho-Neurological and Pedagogical Sanatorium School of the Indtitute of Physical Training and Medical Paedology in Moscow, a sanatorium for children with issues such as trauma and schizophrenia.
+Much of Sukhareva's research took place at the Psycho-Neurological and Pedagogical Sanatorium School of the Indtitute of Physical Training and Medical Paedology in Moscow, a sanatorium for children with issues such as trauma and schizophrenia. The Soviet government,seeing child-rearing as vital to society, put copious amounts of money into the sanatorium, allowing Sukhareva to carry out her research with the resources she needed. This, if nothing else, does suggest that socialism is not without its benefits to people  with autism. Sukhareva's definitions of autism - surrounding unsocial children, especially boys, who, despite fiercely developed intelligence, preferred their own company and liked living in their own worlds - developed from contemporary Soviet research surrounding schizophrenia but became something else entirely.
+
+
 
 
