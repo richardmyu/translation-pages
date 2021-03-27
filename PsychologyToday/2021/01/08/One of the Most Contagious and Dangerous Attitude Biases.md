@@ -42,7 +42,22 @@ Most of the research in social psychology has focused on this third form of over
 
 Indeed, even the father of capitalism, Adam Smith, regarded overconfidence as an "ancient evil". And most troublingly, recent research reveals that this cognitive bias can be quite contagious.
 
+In a series of studies, researchers had participants complete a task where they had to guess the weight of a person in a photo. Before seeing the photos, though, the participant was presented with a prior person's performance at the task. Specifically, they learned how accurate the prior person thought he was at the task as well as how accurate he actually was.
 
+Now, in one condition, the prior person was calibrated (he did as well as he thought he did). In the other condition, the person was overconfident (he did worse than he thought he did).
 
+From this, you might think exposure to the overconfident person would make the participant a bit more cautious about their own self-assessment at the weight-guessing task. But in fact, it had the opposite effect: Those who were exposed to the overconfident individual became more overconfident themselves.
 
+In fact, exposure to the overconfident (vs. calibrated) individual actually made participants anywhere from 15 to 25 percent overconfident in their responses! Moreover, the reseatchers found that participants' overconfidence persisted 2 to 5 days later! And that overconfidence spilled over to different tasks in the experiment!
 
+Just reading all of that even made me overconfident in my use of exclamation points!
+
+**Calibrating One's Confidence**
+
+Although it's one thing to wish you could magic-wand-away a human bias like this, unfortunately, such powers do not exist. So, what can we do to address widespread overconfidence?
+
+In addition to overconfidence being transmitted from person to person, it can also emerge from the environments in which we find ourselves. For example, if overconfidence is rewarded (e.g., employees who act overly confident recerive additional opportunities), then people will act overconfident to get ahead —— which, as we noew know, will only serve to infect others with this bias. In fact, this "culture of overconfidence" has been attributed as a large contributor to the eventual collapse of the once 7th-largest corporation in the U.S., Enron.
+
+However, by knowing that overconfidence can be so easily transmitted socially, it emphasizes the dangerous consequences of choosing role models or spotlighting individuals who exhibit these traits. And if you don't believe me, just look at what happened to the U.S. Capitol building on January 6, 2021. Overconfidence can lead people to the undertake tasks they have no business doing, disregard viewpoints of actual experts on the topic, and lead to behaviors that elevate their own interests above the community.
+
+So, in thinking about your own attitudes, are there any you might be a bit too overconfident on?
