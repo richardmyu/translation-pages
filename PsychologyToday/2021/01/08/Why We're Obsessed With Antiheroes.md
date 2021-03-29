@@ -12,5 +12,29 @@ I recently spoke to Dara Greenwood, the lead author of the research, to discuss 
 
 **Dara Greenwood**: The project was initiated by a bright former student of mine who was interested in understanding how various psychological tendencies might map on to antihero affinities. It's not my genre, although i was super-addicted to "House" back when!
 
-Whould people who share some of the antisocial tendencies of antiheroes find them more appealing? Or, were they so widely appealing that individual differences among viewers were not as relevant to the story?
+Would people who share some of the antisocial tendencies of antiheroes find them more appealing? Or, were they so widely appealing that individual differences among viewers were not as relevant to the story?
+
+We found that self-reported antisocial tendencies among viewers —— such as aggression and Machiavellianism —— predicted increased affinity for the genre and the characters. So, for example, someone who scored higher on aggression also watched antihero programs more frequently, reported increased enjoyment of their revenge-based motivations, and felt they were more similar to a favorite antihero compared to those scoring lower on aggression.
+
+However, the story was also complicated. Participants were more likely to want to be like a favorite antihero that they perceived to be more heroic than villainous, and shows rated as more violent were also associated with lower levels of character affinity.
+
+The other interesting finding was that one person's villain was another person's hero. For example, although most people placed Walter White high on the villain side of tings, at least one person considered him a hero. So, there are many layers to consider.
+
+**Travers**: What are the telltale traits or psychological characteristics of an antihero?
+
+**Greenwood**: Scientists have noted that many antiheroes seem to embody what are called "Dark Triak" traits —— a constellation of antisocial tendencies that include narcissism, Machiavellianism, and psychopathy.
+
+Antiheroes are also predominantly male —— although female antiheroes are certainly gaining traction —— and tend to have stereotypically "hyper-masculine" characteristics of being callous or aggressive.
+
+There is a lot of diversity in who might be considered an antihero. They might include more realistic family-oriented characters who slip inn and out of vicious or unethical lifestyles (like a Walter White or Tony Soprano), or they might include vigilante-style protagonists like James Bond or even Batman, who seek justice on behalf of themselves or others via violent means.
+
+**Travers**: What differentiates a male antihero from a female antihero?
+
+**Greenwood**: For one thing, the sheer volume of female antiheroes in much smaller than males —— which sadly is also true of characters in movies and TV (the male to female skew seems to hover around 2:1).
+
+In our study, only 11 percent of partipants chose females as favorites (and more women than men chose them). There is also some scholarship that suggests female antiheroes might feel more guilt than their male counterparts at wrongdoing, or might be less liked by viewers. This would track with the fact that women who violate traditional feminine norms for being agreeable or passive can be perceived more negatively than men who behave in the same way. More work is needed to clarify the representational nuances here.
+
+**Travers**: Are some cultures more attracted to antiheroes than others?
+
+**Greenwood**: To the extent that antiheroes represent a kind of ferocious individualism, they are perhaps more likely to be popular in individualist cultures, or cultures in which individualist fantasies are cultivated. The idea of standing out, being unique, and acting selfishly on one's own behalf all fit within that kind of mindset. However, acting on behalf of others may be in line with more collectivist cultural norms. More research is needed on this front.
 
