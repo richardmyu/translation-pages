@@ -38,3 +38,12 @@ In our study, only 11 percent of partipants chose females as favorites (and more
 
 **Greenwood**: To the extent that antiheroes represent a kind of ferocious individualism, they are perhaps more likely to be popular in individualist cultures, or cultures in which individualist fantasies are cultivated. The idea of standing out, being unique, and acting selfishly on one's own behalf all fit within that kind of mindset. However, acting on behalf of others may be in line with more collectivist cultural norms. More research is needed on this front.
 
+**Travers**: Are there other reasons why we may develop an "irrational" liking or affinity toward antiheroes?
+
+**Greenwood**: In many ways, it is not at all irrational to connect with the protagonists of well-cragted narratives; we've evolved to learn from stories and by vicarious observation. Some media psychologists argue that part of the pleasure of so-called "transportation" into movies and TV is being able to experience danger or moral transgression from a safe distance. Of course, the downside is that we may become subtly conditioned to give bad bahavior a pass or become desensitized to it, as the characters start to feel like relatable friends and as we repeatedly witness violent acts. Or, we may feel our own aggressive impulses are more justified or valuable. Both short-term and long-term research on the impact of media violence suggests it should not be dismissed as one (among many) risk factors for aggression.
+
+**Travers**: Who are some of your favorite antiheroes?
+
+**Greenwood**: As i said, it wasn't ever really my genre. I'm very sensitive to violence of any kind and only managed to make my way through the first episode of "Breaking Bad".
+
+But i did love Dr.House, partly because Hugh Laurie was such a genius in the role, and partly because you knew he ultimately had good intentions and outcomes (mostly) underneath his calloused manner. But i may have also been swayed by "moral disengagement cues". Maybe i let him off the hook for his unethical means because the ultimately saved lives. The idea that the ends justify the means is in step with a more Machiavellian mentality. Hmm...
