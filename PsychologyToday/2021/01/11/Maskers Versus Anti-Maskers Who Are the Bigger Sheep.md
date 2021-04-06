@@ -61,4 +61,3 @@ As stated by Craig Anderson, renowned for his work on understanding human aggres
 The U.S. has been failing in its response to the virus. Vaccines are on the way, but they won't solve the crisis on their own, at least not for a while. Masks are not 100 percent effective, but they greatly help. If you're not convinced about masks, please try to keep an open mind while more and more research comes out that supports their effectiveness.
 
 Despite the name-calling of maskers as "sheep" by some anti-maskers, the (indirect) evidence suggests anti-maskers are just as sheep-like if not more so. But name-calling is not the best approach, and to assume that everyone on the other side is not thinking logically or for themselves is an unfair generalization. If they criticize you first, i understand the urge to lash out in kind, but let's try to persuade each other without presumption, to save lives.
-
