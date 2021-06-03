@@ -68,3 +68,70 @@ Share your sources of informatin, like articles, books, or documentaries——an
 
 If someone rejects your sources, try to find sources you can both agree to accept as valid, even if you understand those sources might have bias. Here's a handy guide for validating sources of information.
 
+##### 6. DON'T: Lunch verbal grenades.
+
+Some words can be perceived as emotionally aggressive and create the opposite effect of collaborative, productive discourse. This includes any of the following:
+
+- Name-calling-words like "stuopid", "ingorant", "crazy"
+- Blanket statements that include the words "always" or "never"
+- "Zingers", "gotcha" moments, or clap backs——these are momentarily gratifying but may erode your relationship with the person
+- Personal (ad hominem) attacks
+- Labels that people have not adopted themselves
+- Swear words (I'm not apposed to swearing in general, but in difficult conversations, swearing can be distracting and heighten emotions and defensiveness)
+
+Of course, we are able to use these words if we so choose; it's a free country. But if we really want to be credible and trusted during a disagreement, if we want to meximize our impact and understanding, we will take caution. These words breed hostility and anxiety. When we use them, those who might have been sympathetic to our cause may now think we are a jerk.
+
+##### 7. DO: Show you understand, even if you don't agree.
+
+We can't play basketball if we don't know what actions constitute a violation or a foul, right?
+
+The same is true when we disagree. If we walk into a conversation and don't take the time to actually listen and understand the nuance of what someone is saying or believing, we are playing the game without understanding the rules. We might say things that don't make sense or fit the situation, which could mean our participation becomes frustrating or irrelevant. We might also miss opportunities to make good points that we could have made, if we had only paid attention.
+
+Everyone wants to be heard, especially in disagreements. Not being heard, or having our words twisted, creates a lot o fresentment. So take the time to listen.
+
+And after we've listened, then make a point to reflect——literally, and out loud. Let them know that we listened:
+
+- "So if understand you correctly..."
+- "It seems like you are saying ___, is that accurate?"
+- "Can i summarize what i'm understanding so far?"
+
+##### 8. DON'T: Use sarcasm and refrain from speaking in sound bites.
+
+Sarcasm, especially sarcasm in online conversations, can be particularly risky for discourse because we can't always hear or accurately interpret auditory tone. It can be hard to know when someone is being facetious. Try to say exactly what you mean and don't crack jokes at someone's expense. Remember, your long-term relationship with that person is more important than the present conversation. If you want to be influential with them, if you want to stay in community with them, you will seek to use direct language that doesn't leave room for misinterpretation.
+
+In addition to refraining from sarcasm, take the time to spell out a longer response or explanation instead of trying to use sound bites that can be taken the wrong way or seen as cocky. If the conversation matters to you, take the time to partiently spell it out.
+
+All of this said, using humor to lighten the mood can be helpful when things start getting too intense. But use caution if you are talking about a serious topic where people have experienced pain. In such a case, humor will more than likely come across as insensitive.
+
+##### 9. DON'T: Be condescending.
+
+Nobody likes a know-it-all.
+
+Even if you're dripping in academic knowledge, even if you can talk circles around someone, you will alienate them the minute you act superior. Having more knowledge than someone, you will alienate them the minute you act superior. Having more knowledge than someone else does not make you a better person. Note that we're not talking about confidence, here. Confidence is important. Ultimately, being condescending is about control: seeking to control or force someone to agree with us and implying that if they don't, they're bad or stupid.
+
+How do we stop being condescendcing? Here are a few ideas:
+
+- Put an end to explaining things people may already know, interrupting, acting as if you are the final authority, or being incredulous that someone doesn't know something
+- If you're writing to someone, read your draft out loud and take a good, long look at your tone
+- Ask someone else to read it and to give their honest opinion.
+- Admit the possibility that you could be wrong or lack information. Recongnize your limits. Qualify your ideas with "i-speak" statements like, "the way i see it", "in my experience", "in my research", or "in my opinion"
+
+##### 10. DO: Teach and be teachable.
+
+Good teachers are patient, gracious, and give people the space to discover things at their own pace. They don't get mad at someone for not knowing something. Importantly, good teachears don't mistake "uninformed" for "stupid". Smart people can believe untrue or misleading ideas, and it doesn't make them less smart. It means they might have gaps in their understanding or unreliable sources. Intelligence and education are different; remember not to confuse the two.
+
+Be teachable, too. When we're speaking to a peer, it goes a long way to allow ourselves to be challenged. Saying things like "i never thought about it that way" or "that's new to me, i'm going to read up on that" shows that we are a co-learner. If we want to teach, we need to be open to being taught.
+
+A two-way echange of information wqualizes the power dynamic. People are more likely to open up when they are talking to a peer who is still on a learning journey, just like themselves.
+
+##### 11. DO: Thank them for disagreeing.
+
+This last  one is big: Say "thank you" when someone takes the tiem to disagree. It may not seem like it, but disagreement is truly a gift. When someone disagrees with us, they didn't have to take precious time out of their life to engage. They don't owe us their attention or courtesy. When they do choose to disagree with us in healthy ways, they are offering a courtesy. Try to recognize and honor the awkward beauty of that exchange.
+
+##### In conclusion: Healthy disagreement is worth the effort.
+
+It is indeed possible to have a conversation with just about anyone, on just about any topic, and not lose our nerve. However, healthy disagreement doesn't magically happen. It's hard work. It requires skills, pratice, and courage. The work is worth it, however, because we need to disagree well in order to have strong communities and a strong society.
+
+As we condition our conversational muscles, remember that we can't control other people. We can't decide who must agree with us, when ,or to what extent.
+
+But we can build bridges instead of bonfires.
