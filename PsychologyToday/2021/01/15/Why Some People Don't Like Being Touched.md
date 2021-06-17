@@ -1,4 +1,4 @@
-## The Power of Touch
+## Why Some People Don't Like Being Touched
 
 ###### Physical contact and psychological well-being.
 
@@ -17,3 +17,11 @@ Debort and colleagues first consider the role of attachment style in intimate re
 In contrast, infants who learn that their caregivers don't reliably meet their needs will develop one of two different types of insecure attachment styles. Some develop an anxious attachment style, in which they're extremely fussy in order to capture their mother's attention. As adults, they're clingy and demanding, and they frequently worry that their lovers will abandon them.
 
 Other infants develop an avoidant attachment style, whereby they learn to self-soothe. As adults, they prize their independence, and they feel uncomfortable getting too close in intimate relationships. These are the people who feel little desire for physical contact outside of sex, and they dread the affectionate touches and hugs that others try to inflict upon them.
+
+Debrot and colleagues' research question was straightforward: Do people with avoidant attachment style recoil from touch because it provides them no psychological good or even harms them? Or might they benefit from touch just as much as others do if only they could overcome their deep reluctance to engage in physical contact with intimates?
+
+To explore these questions, the researchers conducted three separate studies. The first was a survey of more than 1,600 individuals who were in an intimate relationship. Questions asked about attachment style, well-being, and touch behaviors, including types (caressing, cudding, kissing, and so on) and frequency (ranging from never to four or more times a day).
+
+The results showed, as expected, that people who touched their partners more frequently also reported higher levels of well-being. Furthermore, as expected, those with an avoidant attachment style generally indicated less frequent physical contact with their partner, and they also exhibited lower levels of well-being. However, some avoidantly attached individuals claimed that they did touch their partner often, and these persons enjoyed levels of well-being similar to others who reported frequent physical contact.
+
+This last finding suggests that persons with an avoidant attachment style can benefit from intimate touch just as others do, and at any rate, it certainly doesn't harm them. However, we always need to be wary when interpreting the data from self-reports such as these. So, to further explore the connection between avoidant attachment and the benefits of touch, Debrot and colleagues invited 66 couples to visit their lab.
