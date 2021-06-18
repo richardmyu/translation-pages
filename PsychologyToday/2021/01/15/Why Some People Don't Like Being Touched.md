@@ -2,7 +2,7 @@
 
 ###### Physical contact and psychological well-being.
 
-[link](https://www.psychologytoday.com/intl/blog/talking-apes/202101/the-power-touch)
+[link](https://www.psychologytoday.com/intl/blog/talking-apes/202101/why-some-people-dont-being-touched)
 
 The Japanese have a word that they believe they borrowed from English, but you won't find it in any dictionary. When the Japenese use this word, they're referring to the importance of touch in close relationships. They call this skinship, that is, a relationship built on and nurtured by skin-to-skin contact.
 
